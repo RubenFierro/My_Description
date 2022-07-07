@@ -17,4 +17,4 @@ My last job was as a qualification engineer, where I acquired skills in ensuring
 
 📱 Mobile: +57 3185576135
 
-Linkedin: www.linkedin.com/in/rubén-darío-fierro-suarez-370b83166
+📄 Linkedin: www.linkedin.com/in/rubén-darío-fierro-suarez-370b83166
